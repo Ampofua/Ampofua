@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on tech projects 
 - 📫 How to reach me ...
 - 😄 Pronouns: SHE/HER
-- ⚡ Fun fact: I enjoy crotching and watching movies, I adore the colour brown
+- ⚡ Fun fact: I enjoy crocheting and watching movies, I adore the colour brown
 
 <!---
 Ampofua/Ampofua is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
